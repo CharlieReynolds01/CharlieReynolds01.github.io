@@ -1,1 +1,2 @@
 # Jean-Luc Picard im Wandel der Zeit
+Jean-Luc Picard wird 2305 in Frankreich geboren. Seine Eltern bewirtschaften ein Weingut. Obwohl seine Familie gerne hätte, das er auf dem Weingut arbeitet bewirbt er sich auf der Sternenflottenakademie und wird angenommen. Er schließt seine Ausbildung ab und bekommt ein Komando auf der Enterprise.
