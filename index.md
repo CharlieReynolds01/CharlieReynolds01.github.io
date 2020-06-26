@@ -11,3 +11,18 @@ Jean-Luc Picard wird 2305 in Frankreich geboren. Seine Eltern bewirtschaften ein
 * Hat für seine Karriere eine Familie aufgegeben
 * Er wollte schon immer Kaptain eines Raumschiffes sein
 * Ist zurückhaltend
+
+
+
+
+
+
+
+
+
+
+
+
+
+Jean-Luc sagte:
+> Ein Name muss in allen Geschichtsbüchern stehen. Der Name: Enterprise!
